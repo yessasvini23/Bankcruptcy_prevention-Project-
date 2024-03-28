@@ -1,5 +1,5 @@
 
-Bankcruptcy_prevention-Project🏦
+Bankruptcy-Prevention-Project🏦
 
 Business Objective:
 
